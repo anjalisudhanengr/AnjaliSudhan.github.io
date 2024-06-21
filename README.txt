@@ -1,1 +1,1 @@
-This is me, ANjali Sudhan. A detailed view.
+This is me, Anjali Sudhan. A detailed view.
